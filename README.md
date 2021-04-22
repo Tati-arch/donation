@@ -1,2 +1,2 @@
-# https://kitabisa.com/salingbantusembuhkantumor?utm_source=socialsharing_campaigner_web_e9565bb1667ade62108b7d8cfccd1ed0&utm_medium=share_campaign_whatsapp&utm_campaign=share_detail_campaign
+# https://kitabisa.com/salingbantusembuhkantumor
 Kitabisa
